@@ -50,5 +50,5 @@ If you're also learning or find this helpful, feel free to ⭐ the repo and foll
 
 ## 🔗 Connect with Me
 
-Maintained by [Your Name]  
-📧 [your.email@example.com] | 🌐 [Portfolio if any]
+Maintained by VIJAY KUMAR  
+📧 vijjulu090304@gmail.com | 
